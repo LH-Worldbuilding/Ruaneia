@@ -1,0 +1,1 @@
+**Puritas** is a legendary blade imbued with magic and forged to be so pure it can cut through virtually anything including air.

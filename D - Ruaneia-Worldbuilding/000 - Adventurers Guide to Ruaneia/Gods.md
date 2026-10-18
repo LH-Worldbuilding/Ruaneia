@@ -1,0 +1,6 @@
+---
+tags:
+  - worldbuilding
+  - rules
+---
+

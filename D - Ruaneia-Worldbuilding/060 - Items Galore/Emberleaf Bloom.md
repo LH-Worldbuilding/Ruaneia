@@ -1,0 +1,1 @@
+A fiery orange blossom that glows like a coal beneath the shade of its awakened tree guardian. Its warmth is not heat, but life itself. Without the bark that once shielded it, the ember fades to ash.
